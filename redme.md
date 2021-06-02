@@ -1,3 +1,3 @@
 #feom2
 ## hello
-k x hajur 
+k x hajur sab thik xa ni
